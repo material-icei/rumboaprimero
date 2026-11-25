@@ -1,1 +1,1 @@
-Actividades de alfabetización para 1º grado de primaria
+14 actividades variadas para prepararse para 1º grado de primaria (área de lengua)
